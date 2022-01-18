@@ -1,0 +1,1 @@
+Hi my name is Branden and I've been around computers all my life. My Dad is a Network Admin and has taught me since I was a little kid. It's been a passion of mine ever since.
